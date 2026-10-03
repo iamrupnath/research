@@ -1,8 +1,1 @@
-https://chatgpt.com/s/t_6abe3da9ef6c81919edc5478013e8ca8
-
-
-
-https://chatgpt.com/s/t_6abe3bc66f188191873b24bcaa28368e# research
-
-
-https://chatgpt.com/s/t_6abe3d124a6c81919620739dfb44c5de
+https://chatgpt.com/share/6ac0924f-0270-83ee-83f7-419c1acd7b47?ogimg=plain
